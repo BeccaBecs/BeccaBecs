@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BeccaBecs
+- 👀 I’m interested in men who spank my bare bottom
+- 💞️ I’m looking to collaborate a male dom
+- 📫 How to reach me: nowhere ;)
+- 😄 Pronouns: she/her
